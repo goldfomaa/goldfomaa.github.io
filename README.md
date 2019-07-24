@@ -1,1 +1,0 @@
-# goldfomaa.github.io
